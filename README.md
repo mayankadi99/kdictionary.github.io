@@ -1,1 +1,0 @@
-# kdictionary.github.io
